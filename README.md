@@ -87,5 +87,5 @@ For any inquiries, feel free to reach out to t
 he project maintainer:
 
 - **GitHub**: [Tamnud-ghule](https://github.com/Tamnud-ghule)
-- **Email**: [[your-email@example.com](mailto\:your-email@example.com)]
+- **Email**: [[Tamanud_ghule](mailto\:tamanudghule57@gmail.com)]
 
